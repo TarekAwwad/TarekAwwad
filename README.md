@@ -1,4 +1,4 @@
-### Hi there I am Tarek 👋
+### Mara7eb! I am Tarek 👋
 
 - :computer: Background - Network security engineer,
 - :mag: Previously - Computer vision engineer,
